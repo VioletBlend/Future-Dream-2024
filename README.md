@@ -1,9 +1,11 @@
 # Future-Dream-2024
 
-ステキなホームページで憧れる。
+非常にステキなホームページで憧れる。
 
 今の自分ではどうしても無理。
 
-今回は諦めよう。
+いつの日にか。
 
 https://w.vmeta.jp/tdiary/
+
+https://ja.wikipedia.org/wiki/TDiary
